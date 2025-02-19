@@ -1,1 +1,1 @@
-Learning python yeh
+aight bet
